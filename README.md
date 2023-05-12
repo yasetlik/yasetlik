@@ -1,0 +1,4 @@
+- 👋 oi,eusou a yasmim
+- 👀 eu sou interessada em artes e historia
+- 🌱 gosto de ler os fantasma de Derek Stone
+- 💞️ eu colaboro na doanção de roupas
